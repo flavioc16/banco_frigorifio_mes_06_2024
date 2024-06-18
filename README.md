@@ -1,0 +1,1 @@
+# banco_frigorifio_mes_06_2024
